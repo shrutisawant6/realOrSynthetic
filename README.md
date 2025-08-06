@@ -14,4 +14,5 @@ As its an exe, no worry of uploading or downloading and makes you feel safer as 
 
 **Demo**
 
-![RealOrSyntheticGIF](https://github.com/user-attachments/assets/f918095d-7582-4689-863a-e8580ecc414a)
+
+![RealOrSyntheticGIF](https://github.com/user-attachments/assets/8bb55cee-c4ca-49c3-abab-bf8734044658)
