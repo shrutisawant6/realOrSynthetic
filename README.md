@@ -10,7 +10,7 @@ And cant even say no, else your engineering degree will be questioned? 🤦🏻
 
 Here comes RealOrSynthetic exe that will differentiate real to synthetic photos. These photos can later be deleted, archived or may be printed and pasted on walls until not a single wall remains bare. 😐
 
-As its an exe, no worry of uploading or downloading any photos and makes you feel safer as its standalone on your phone or PC.
+As its an exe, no worry of uploading or downloading any photos and makes you feel safer as its standalone on your phone or PC. 😎
 
 **Demo**
 
