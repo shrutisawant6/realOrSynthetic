@@ -15,3 +15,6 @@ As its an exe, no worry of uploading or downloading and makes you feel safer as 
 **Demo**
 
 
+![RealOrSyntheticGIF](https://github.com/user-attachments/assets/5f81d058-93a2-4a7f-84a2-bd48901db4f7)
+
+
