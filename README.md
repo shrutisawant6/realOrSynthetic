@@ -4,7 +4,7 @@ What is your plan for this weekend?
 
 Does this question always haunt you and tend to say 'I already have plans'? 📅✅
 
-Are these plans more inclined towards deleting 'Good morning/evening' photos from your parents phone?
+Are these plans more inclined towards deleting 'Daily greetings' photos from your parents phone?
 
 And cant even say no, else your engineering degree will be questioned? 🤦🏻
 
